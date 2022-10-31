@@ -1,1 +1,1 @@
-# Jiz-Bosatsu
+# Jizo-Bosatsu
